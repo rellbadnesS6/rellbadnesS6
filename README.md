@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @rellbadnesS6
+- 👀 I’m interested in ... sports 
+- 🌱 I’m currently working ... song writer 
+- 💞️ I’m looking to collaborate on ... fan's 
+- 📫 How to reach me ... badnessrich00@gmail.com
+- 😄 Pronouns: ...0.M.W.E.L.We rise, we shine,With every heartbeat,Together, we PUUTA COUPLE.  
+Badness in the PLACE AHHH,Feel the beat drop,In this  joyful moment,We’ll neva stop.
+- ⚡ Fun fact: ...🧩UP WID DE RHYTHMS🧲
+
+
+
